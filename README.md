@@ -1,2 +1,0 @@
-# Afame-Technologies-LandingPage
-
